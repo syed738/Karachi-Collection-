@@ -1,2 +1,3 @@
 # Karachi-Collection-
-The best and trus
+The best karachi app order first pay later 
+Dilevry charger 200 only dilevery in karachi 
